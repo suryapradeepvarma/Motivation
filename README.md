@@ -1,3 +1,3 @@
 # Motivation
 
-If somecan do it you can do it too!!!
+If somecan do it you can do it too. Come on !!!
