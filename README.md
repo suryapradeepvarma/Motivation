@@ -1,4 +1,3 @@
 # Motivation
 
-
-a reason or reasons for acting or behaving in a particular way
+If somecan do it you can do it too!!!
